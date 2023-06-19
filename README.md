@@ -4,7 +4,7 @@
 
 🔍 | I’m a Minecraft,WebSite Dev
 
-🌱 | CSS,HTML & Kotlin Dev
+🌱 | CSS,HTML & Sussolino Mom Dev
 
 💎 | My Leak WebSite [BlackLeaks](https://www.blackleaks.me)
 
